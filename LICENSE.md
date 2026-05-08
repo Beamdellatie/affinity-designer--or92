@@ -1,4 +1,4 @@
-
+Affinity Designer for macOS instant Filter - AI-assisted design and cloud sync offers the most advanced Affinity Designer for macOS filter, with AI-assisted design and cloud sync.
 
 
 
